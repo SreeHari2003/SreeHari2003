@@ -16,6 +16,6 @@
 
 📫 Let's Connect!
 📧 Email: sree2003haris@gmail.com
-🔗 LinkedIn: []
+🔗 LinkedIn: [http://linkedin.com/in/sree-haris]
 
 🌱 Always learning & exploring new tech! 🚀
